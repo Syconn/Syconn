@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Syconn
+- 👋 Hi, I’m Aidan or online @Syconn
 - 👀 I’m interested in be a program developer
 - 🌱 I’m currently learning Computer Science
 - 📫 Email: Syconngaming@gmail.com | Discord: Syconn
